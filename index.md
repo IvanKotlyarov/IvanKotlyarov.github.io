@@ -2,5 +2,5 @@
 
 ## Fast, and Safe
 
-If you're interested - contact me on https://t.me/@IVANKOTLYAROV
+If you're interested - contact me on https://t.me/IVANKOTLYAROV - telegram
 
